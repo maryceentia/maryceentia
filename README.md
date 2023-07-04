@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @maryceentia
+- 👀 I’m interested in meeting techies😊
+- 🌱 I’m currently learning SE @alx
+- 📫 How to reach me @maryceentia(twitter)
+- Let's code✌️
+- also a female cobbler 😁
